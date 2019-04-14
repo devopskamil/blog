@@ -1,2 +1,1 @@
-Moja pasja - IT
-Kamil Wiecek
+Moja Pasja IT - Kamil Więcek
